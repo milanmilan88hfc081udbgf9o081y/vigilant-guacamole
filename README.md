@@ -1,0 +1,1 @@
+https://www.google.com/search?q=simple+2d+player+movement+unity+script&rlz=1C1GCEB_enUS1095US1095&oq=simple+2d+player+movement+unity+script&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIICAEQABgWGB4yDQgCEAAYhgMYgAQYigUyDQgDEAAYhgMYgAQYigUyDQgEEAAYhgMYgAQYigXSAQkxMzM4M2owajmoAgCwAgA&sourceid=chrome&ie=UTF-8&safe=active&ssui=on#kpvalbx=_NVbeZdeCFsyB0PEP6YeD2A0_76
